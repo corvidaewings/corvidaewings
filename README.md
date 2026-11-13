@@ -6,7 +6,7 @@
 <img alt="Static Badge" src="https://img.shields.io/badge/fandoms.-756187"> <strong>vocaloid / vocal synths</strong>. <strong>doki doki literature club</strong>. <strong>murder drones</strong>. life series smp. alien stage / zombie stage. empires smp. project hail mary. the amazing digital circus.<br><br>
 <img alt="Static Badge" src="https://img.shields.io/badge/music.-756187"> <strong>jamie paige</strong>. <strong>MARETU</strong>. <strong>FLAVOR FOLEY</strong>. <strong>pinocchiop</strong>. <strong>the crane wives</strong>. kairiki bear. vane lily. elio mei. alien stage / zombie stage. vocal synth music in general.<br><br>
 <img width="100%" height="87" alt="image" src="https://github.com/user-attachments/assets/2965dd28-889c-463e-bdde-d4c9137fe800">
-<img alt="Static Badge" src="https://img.shields.io/badge/pony town.-756187"> if status is away, whisper to interact only. friend requests okay. if i ever leave without saying i’m leaving, it’s because i disconnected &lt;/3 int always. <br><br>
+<img alt="Static Badge" src="https://img.shields.io/badge/pony town.-756187"> if status is away, whisper to interact only. friend requests okay. if i ever leave without saying i’m leaving, it’s because i disconnected &lt;/3 always int. <br><br>
 <img alt="Static Badge" src="https://img.shields.io/badge/guestbook / atabook.-756187"> https://corvidaewings.atabook.org
   
 
